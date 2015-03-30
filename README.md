@@ -2,11 +2,4 @@
 # montest je vais t'ecraser
 
 
-f
-f
-f
-f
-fmm
-
-
-vous cassr les couilles
+c ca le read me
